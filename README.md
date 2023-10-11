@@ -1,4 +1,5 @@
 - 👋 Hi, I’m Renato Furtado
+- 😄 Procurando a primeira oportunidade.
 
 
 
